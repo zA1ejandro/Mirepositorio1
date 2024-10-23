@@ -2,3 +2,4 @@
 Es el pariente vivo con más similitudes genéticas con la jirafa. Se le considera a veces un fósil viviente por su parecido con los primeros jiráfidos
 ysgfguwgu
 octavio siempre la caga 
+prueba
